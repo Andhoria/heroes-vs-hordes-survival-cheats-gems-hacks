@@ -1,2 +1,5 @@
-# heroes-vs-hordes-survival-cheats-gems-hacks
-Heroes vs Hordes Survival Codes Cheats 100K Gems guide Hacks
+# Heroes vs Hordes Survival Codes Cheats 100K Gems guide Hacks
+
+Heroes vs Hordes Survival Codes Cheats 100K Gems guide Hacks - There are also some rare materials that can only be obtained through nuclear fusion. Combining the three epic items will produce a perfect epic (purple with a gold border). The combination of three perfect epic props will obtain legend (gold). These items are very, very difficult to get and take a long time to get, unless you are willing to buy gems, of course. In addition to upgrading rare items, you can also upgrade items by using scrolls and coins. This makes the properties of the item better than the basic properties it already has. Each item has a corresponding scroll bar. There are weapon scroll, armor scroll, ring scroll and spirit scroll. The scroll bar is mainly dropped by the enemy during running and is easy to get. The number of scrollbars required for each upgrade will increase, so you will need many scrollbars over time. You can also get random scrolls and coins through time rewards, which you can collect once an hour. Heroes vs Hordes code list
+
+[enter now](https://growhunt.top/heroes-vs-hordes/)
